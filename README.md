@@ -1,1 +1,0 @@
-# jorgemedina90.github.io
